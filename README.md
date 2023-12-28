@@ -1,6 +1,6 @@
 # 一番日语技术支持
 
-1. 官方反馈邮箱：ichibann_clock@163.com(恢复较慢) 
+1. 官方反馈邮箱：ichibann_clock@163.com(回复较慢) 
 1. 官方反馈小红书：ichibann_clock(一番日语の新海さん)（回复较快，推荐）
 
 
